@@ -2,4 +2,4 @@
 
 
 - 🌱 I’m currently learning backend developer
-- 💬 Ask me about   @rhmt_ardiansyah
+- 💬 Ask me about on instagram @rhmt_ardiansyah
